@@ -10,4 +10,4 @@
 
 观看这些优质影片，确保让您享受舒适的体验，轻松找到您想要的内容，平台提供多个分类供您选择。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/mt20250709/mt3 ）</span>
